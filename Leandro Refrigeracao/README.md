@@ -1,2 +1,2 @@
-#Landing Page Leandro Refrigeração#
+Landing Page Leandro Refrigeração
 
